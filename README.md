@@ -10,7 +10,7 @@ able to work in this field.
 
 My Purpose
 
-I am looking for an internship related to the software industry where I can develop myself more in software, be involved in
+I am looking for an job related to the software industry where I can develop myself more in software, be involved in
 teamwork and take part in national projects.
 
 EDUCATION AND TRAINING
